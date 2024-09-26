@@ -25,10 +25,14 @@ The smooth, wavy lines evoke a sense of flow and rhythm, much like the sonic lan
 
 ![current album](assets/currents.jpeg.jpg)
 
+[Original image link](https://images.app.goo.gl/MFfSLLzkRa11auRa9)
+
 # **Second iteration**
 
 
 ![current album](assets/currents2.jpg)
+
+[Original image link](https://images.app.goo.gl/AgJLCtcx6gTFXzuU8)
 
 #
 #
